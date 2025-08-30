@@ -1,1 +1,8 @@
-# ST1223456_PROG5121_PART1
+Overview of Part1
+Summary of Part 1
+hfjlkdsjlfpwds;jhdgvfhsdklzd;pohfdjslk;laskshbfkjsdna
+
+
+
+References
+Referencing all AI Tools
